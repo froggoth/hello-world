@@ -1,4 +1,4 @@
 # hello-world
 
-I like frogs, black t-shirts, and fucking bitches.
+I like frogs and black t-shirts.
 2DGIRLS4LIFE
